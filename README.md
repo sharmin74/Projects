@@ -24,7 +24,7 @@ https://www.skinlab.in/ <br>
 https://seedop.com/ <br>
 
 
-Contributes to <br>
+Contributed to <br>
 https://evectrifi.com/ <br>
 https://mconrasayan.com/ <br>
 http://www.atlantawaterproof.com/ <br>
