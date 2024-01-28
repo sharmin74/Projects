@@ -1,6 +1,7 @@
 # Projects
 List of Projects I've worked on and contributed to.
 
+WordPress Websites
 https://www.originswellnessgroup.org/ <br>
 https://www.webtrixz.com/ <br>
 https://www.fashion-identity.com/ <br>
@@ -17,12 +18,12 @@ https://www.relaxstudio.in/  <br>
 https://abrarme.com/ <br>
 https://www.infantjesusschool.co.in/ <br>
 https://themayflowervilla.com/ <br>
-https://www.iinnerme.com/ <br>
 https://www.epioneindustries.com/ <br>
 https://kavyasinghkundu.com/ <br>
 https://www.gbrubberproduct.com/  <br>
 https://www.skinlab.in/ <br>
 https://seedop.com/ <br>
+https://krg.excelbuilddigital.com/ <br>
 
 
 Contributed to <br>
@@ -39,3 +40,12 @@ https://photoquip.com/ <br>
 https://dhunseritea.com/  <br>
 
 
+Shopify Websites <br>
+https://sunraeze.com/ <br>
+https://muloha.com/ <br>
+https://www.iinnerme.com/ <br>
+https://moroccansouq.ca/ <br>
+https://www.zaytunamart.ca/ <br>
+https://justrad.in/ <br>
+<br>
+<br>
