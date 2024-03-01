@@ -47,8 +47,6 @@ https://www.iinnerme.com/ <br>
 https://moroccansouq.ca/ <br>
 https://www.zaytunamart.ca/ <br>
 https://justrad.in/ <br>
-<br>
-<br>
 
 
 HTML CSS (Frontend Only)<br>
