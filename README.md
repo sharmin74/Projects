@@ -26,7 +26,7 @@ https://seedop.com/ <br>
 https://krg.excelbuilddigital.com/ <br>
 
 
-Contributed to <br>
+Contributed to (WordPress Team Work) <br>
 https://evectrifi.com/ <br>
 https://mconrasayan.com/ <br>
 http://www.atlantawaterproof.com/ <br>
