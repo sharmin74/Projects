@@ -50,6 +50,7 @@ https://www.zaytunamart.ca/ <br>
 https://justrad.in/ <br>
 https://ontopstore.ca/ <br>
 https://domnom.in/ <br>
+http://kavyasinghkundu.com/ <br>
 
 
 HTML CSS (Frontend Only)<br>
