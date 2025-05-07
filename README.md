@@ -26,6 +26,8 @@ https://seedop.com/ <br>
 https://artworksignages.com/ <br>
 https://edufinancebymoin.com/ <br>
 https://phoenixhealthcare.in/ <br>
+https://whitecaprsc.com/ <br>
+https://lkdr.global/ <br>
 
 
 Contributed to (WordPress Team Work) <br>
@@ -40,6 +42,11 @@ https://epioneindustries.com/stubble/ <br>
 https://genuspower.com/ <br>
 https://photoquip.com/ <br>
 https://dhunseritea.com/  <br>
+http://giftingsense.org/ <br>
+https://englishfrench.ca/ <br>
+https://amotherapartfilm.com/ <br>
+https://as-sadiqschool.com/khums-calculator/ <br> 
+
 
 
 Shopify Websites <br>
@@ -55,9 +62,18 @@ https://sunraeze.com/ <br>
 http://safron.co/ <br>
 https://www.iinnerme.com/ <br>
 https://justrad.in/ <br>
+https://floravue.ca/ <br>
+https://ahirsportsusa.com/ <br>
+
 
 
 HTML CSS (Frontend Only)<br>
 https://krishirasayan.com/ <br>
+https://docushieldroom.excelbuilddigital.com/ <br> 
+https://merakisoulvillas.com/ <br> 
+https://multiconrealty.in/ <br>
+https://mobileshoptools.com/ <br>
+https://parasramkagroup.com/ <br> 
+https://galatravels.com/ <br> 
 <br>
 <br>
