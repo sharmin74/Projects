@@ -1,6 +1,16 @@
 # Projects
 List of Projects I've worked on and contributed to.
 
+MOST RECENT PROJECTS (2025) WORDPRESS AND TEAM WORK <br>
+http://giftingsense.org/ <br>
+https://englishfrench.ca/ <br>
+https://amotherapartfilm.com/ <br>
+https://whitecaprsc.com/ <br>
+https://lkdr.global/ <br>
+https://omkarainfratech.com/ <br>
+https://edufinancebymoin.com/ <br>
+
+
 WordPress Websites <br>
 https://www.originswellnessgroup.org/ <br>
 https://www.webtrixz.com/ <br>
@@ -26,8 +36,6 @@ https://seedop.com/ <br>
 https://artworksignages.com/ <br>
 https://edufinancebymoin.com/ <br>
 https://phoenixhealthcare.in/ <br>
-https://whitecaprsc.com/ <br>
-https://lkdr.global/ <br>
 
 
 Contributed to (WordPress Team Work) <br>
@@ -42,9 +50,6 @@ https://epioneindustries.com/stubble/ <br>
 https://genuspower.com/ <br>
 https://photoquip.com/ <br>
 https://dhunseritea.com/  <br>
-http://giftingsense.org/ <br>
-https://englishfrench.ca/ <br>
-https://amotherapartfilm.com/ <br>
 https://as-sadiqschool.com/khums-calculator/ <br> 
 
 
