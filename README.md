@@ -1,6 +1,14 @@
 # Projects
 List of Projects I've worked on and contributed to.
 
+MOST RECENT PROJECTS (2026) WORDPRESS (SINGLE AND MULTISITES) AND TEAM WORK <br>
+https://seniorservicesofamerica.com/ <br>
+https://ascentlc.com/ <br>
+https://markhamsl.com/ <br>
+https://kaplanseniorliving.com/ <br>
+
+
+
 MOST RECENT PROJECTS (2025) WORDPRESS AND TEAM WORK <br>
 http://giftingsense.org/ <br>
 https://englishfrench.ca/ <br>
