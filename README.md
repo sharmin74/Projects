@@ -2,6 +2,7 @@
 List of Projects I've worked on and contributed to.
 
 MOST RECENT PROJECTS (2026) WORDPRESS (SINGLE AND MULTISITES) AND TEAM WORK <br>
+https://meridiansenior.com/ (One of my largest projects with 40 websites total) <br>
 https://seniorservicesofamerica.com/ <br>
 https://ascentlc.com/ <br>
 https://markhamsl.com/ <br>
