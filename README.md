@@ -10,14 +10,12 @@ https://kaplanseniorliving.com/ <br>
 
 
 
-MOST RECENT PROJECTS (2025) WORDPRESS AND TEAM WORK <br>
+2025 Wordpress Websites And Team Work <br>
 http://giftingsense.org/ <br>
 https://englishfrench.ca/ <br>
 https://amotherapartfilm.com/ <br>
 https://whitecaprsc.com/ <br>
 https://lkdr.global/ <br>
-https://omkarainfratech.com/ <br>
-https://edufinancebymoin.com/ <br>
 
 
 WordPress Websites <br>
@@ -45,6 +43,8 @@ https://seedop.com/ <br>
 https://artworksignages.com/ <br>
 https://edufinancebymoin.com/ <br>
 https://phoenixhealthcare.in/ <br>
+https://omkarainfratech.com/ <br>
+https://edufinancebymoin.com/ <br>
 
 
 Contributed to (WordPress Team Work) <br>
